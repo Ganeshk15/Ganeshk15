@@ -26,6 +26,6 @@ Stock Market Analytics
 I welcome any questions, feedback, or collaboration inquiries! Feel free to reach out to me:
 
 - Email: Ganeshkunigiri.15@gmail.com
-- LinkedIn: https://linkedin.com/in/ganesh-k-776048265
+- LinkedIn: www.linkedin.com/in/ganesh-kunigiri
 
 Thank you for visiting my portfolio, and I look forward to connecting!
